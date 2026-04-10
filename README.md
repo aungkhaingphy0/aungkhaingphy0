@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @aungkhaingphy0
-- 🌱 I’m currently learning Python
+- 🌱 I’m currently learning to live
 - 📫 How to reach me https://t.me/Stoicfarmer
 
 <!---
